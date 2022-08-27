@@ -2,7 +2,7 @@
 - 👀 I’m interested in Twitch streaming, content creation, and coding.
 - 🌱 I’m currently learning some things in CS and Data Science. 
 - 💞️ I’m looking to collaborate on TBD. 
-- 📫 How to reach me: Discord: Enkō Korupt#6999 
+- 📫 How to reach me: Twitter @604korupt
 
 
 <!---
